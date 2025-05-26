@@ -36,4 +36,4 @@
 
 ### 📫 Connect with me:
 - 📧 Email: [senga8818@gmail.com](mailto:senga8818@gmail.com)
-- 💼 LinkedIn: [My LinkedIn](https://www.linkedin.com/in/m-riski-ramadani-144449201/) *(optional)*
+- 💼 LinkedIn: [My LinkedIn](https://www.linkedin.com/in/m-riski-ramadani-144449201/)
